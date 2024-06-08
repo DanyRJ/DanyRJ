@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 I'm Dany<br>👀 I am interested in learning as much as possible.<br>🐍 I am currently studying Python<br>🤸‍♂️I am looking to collaborate within my abilities.<br>💬 Ask me<br>
+👋 I'm Dany<br>👀 I am interested in learning as much as possible.<br>🐍 I am currently studying Python<br>🤸‍♂️I am looking to collaborate within my abilities.<br>💬 Ask me<br> ⚡ Do it! <br>
 
 
 ## 🌐 Socials:
